@@ -14,3 +14,8 @@ Baby adoptieren wollen, entbrennt ein Streit, der nicht nur die beiden Familien 
 * Mutter von vier Teenagern
 * Möchte in allem perfektes Image haben
 
+
+## Romanvorlage - kein Zitat
+
+> Serie „Little Fires Everywhere“ stammt aus 
+> dem gleichnamigen Bestsellers von Celeste Ng
